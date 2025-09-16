@@ -3,5 +3,5 @@
 <img width="1000" height="49" alt="1000043079" src="https://github.com/user-attachments/assets/ba607bab-7753-4408-9c6a-e16c5b914134" />
 
 
-# $\textcolor{lightskyblue}{\textsf{󠀠󠀠⠀ ⠀⠀  ⠀⠀ ⠀"baby tell me what's your motive!"}}$
-interests : Happy world with happy people, Rochas313, Grace, Die of Death 
+# $\textcolor{lightskyblue}{\textsf{󠀠󠀠⠀ ⠀   ⠀"baby tell me what's your motive!"}}$
+# $\textcolor{pink}{\textsf{ • interests : Happy world with happy people, Rochas313, Grace, Die of Death, forsaken}}$
