@@ -6,3 +6,6 @@
 # $\textcolor{lightskyblue}{\textsf{󠀠󠀠⠀ ⠀   ⠀"baby tell me what's your motive!"}}$
 # $\textcolor{pink}{\textsf{ • interests : Happy world with happy people, Rochas313, Grace, Die of Death, forsaken}}$
 $\textcolor{khaki}{\textsf{⠀ ⠀   ⠀i usually don't accept friend req, as i have high level of paranoia}}$
+
+
+![](https://komarev.com/ghpvc/?username=sweetpulling&label=★&color=ff69b4)
