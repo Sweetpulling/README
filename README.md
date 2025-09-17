@@ -10,7 +10,7 @@
   <img src="https://github.com/user-attachments/assets/656708a4-a43f-4ff9-b982-fb3ecfa59570" />
 </p>
 
- $\textcolor{pink}{\textsf{ ★   .   interests : Happy world with happy people, Rochas313, Grace, Die of Death, forsaken}}$
+ $\textcolor{pink}{\textsf{ ★   .   interests : Happy world with happy people, Rochas313, Grace, Die of Death, forsaken & more}}$
  $\textcolor{khaki}{\textsf{⠀★   .    ⠀   ⠀i usually don't accept friend req, as i have high level of paranoia}}$
 
 
