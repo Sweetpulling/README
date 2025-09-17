@@ -16,4 +16,4 @@
   <img src="https://github.com/user-attachments/assets/fa28ab72-f51b-4d4e-9984-f33458273b1f" />
 </p>
 
-# LINKS SOON!
+# ⠀ ⠀ ⠀ ⠀   ⠀⠀ ⠀ ⠀    ⠀   .⠀   ⠀LINKZ SOON!⠀ ⠀   ⠀.
